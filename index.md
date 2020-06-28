@@ -7,8 +7,8 @@ In English the name of the band means 'The dead trousers'. The band was named by
 
 As Campino said:
 
->Wir werden immer laut durch's
->Leben zieh'n, jeden Tag in
->jedem Jahr.
+> Wir werden immer laut durch's
+> Leben zieh'n, jeden Tag in
+> jedem Jahr.
 
 img src=https://upload.wikimedia.org/wikipedia/commons/5/50/Die-Toten-Hosen_2013.jpg
