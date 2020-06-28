@@ -4,3 +4,7 @@ In English the name of the band means 'The dead trousers'. The band was named by
 * love Live-Gigs
 * are very loud
 * are known in Southamerica, too
+
+As Campino said:
+
+>Wir werden immer laut durch's >Leben zieh'n, jeden Tag in >jedem Jahr.
