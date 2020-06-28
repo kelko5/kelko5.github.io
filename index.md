@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Die Toten Hosen are rocking about 40 years!
