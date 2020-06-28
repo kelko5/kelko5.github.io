@@ -11,4 +11,4 @@ As Campino said:
 >Leben zieh'n, jeden Tag in
 >jedem Jahr.
 
-img src="https://de.wikipedia.org/wiki/Datei:Die-Toten-Hosen_2013.jpg"
+img src="https://de.wikipedia.org/wiki/Datei:Die-Toten-Hosen_2013.jpg"/
