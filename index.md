@@ -1,1 +1,1 @@
-# Die Toten Hosen are rocking about 40 years!
+# Die Toten Hosen are rocking about 40 years (a long long time)!
